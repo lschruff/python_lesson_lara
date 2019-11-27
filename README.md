@@ -6,4 +6,8 @@ Lara Schruff
 
 ## Stand
 
-2019-11-27
+Mittwoch, 2019-11-27
+
+## Ort
+
+Köln

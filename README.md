@@ -10,4 +10,4 @@ Mittwoch, 2019-11-27
 
 ## Ort
 
-Köln
+TH Köln, Ubierring 48 Köln
